@@ -10,8 +10,12 @@ links
 
  　  　  　  　  　  　  　  　  　  　 　  　 　  　  　  　  　   　　[pronouns page](https://en.pronouns.page/@leveretinhiding)　　[strawpage](https://brokenspawnirl.straw.page)
 ![image](https://github.com/user-attachments/assets/34442a3d-101a-49a8-83d9-ba831e088f1b)
-<p align=center> ‎ ˗ˏˋdni .ᐟ.ᐟ‎´ˎ˗
+<p align=center> ‎ ˗ˏˋdni .ᐟ.ᐟ‎´ˎ˗ 
+
 
 <p align=center> weird people ,, people over 18 ,, anyone who hates on my interests or favorite / comfort characters in a non - joking way ,, people who dont respect boundaries ,, homophobes and transphobes ,, racist people
 
+<p align=center> ⟣ ❝　byi ♫ ❞ ⟢
+
 ![image](https://github.com/user-attachments/assets/0879db9b-b83e-4ea1-b5e5-60f7619288bf)
+
