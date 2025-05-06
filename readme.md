@@ -1,11 +1,13 @@
 ![image](https://github.com/user-attachments/assets/7ae6ab3b-96fe-4745-b4ee-335ac4a1f368)
+
+<p align=center> ☆　⨟  broken spawn  ╱  two time ɞ
 <p align=center> they / it / dagger ⟡ whisper to int . with me because im usually offtab or working on a pony ( so i probably wont see your message immediately either ,, )
 ⟡  im a two time and broken spawn fictkin please dont talk about them negatively when im around / present in the conversation !
 
 [strawpage](https://brokenspawnirl.straw.page) - [pronouns page](https://en.pronouns.page/@leveretinhiding)
   
 ![image](https://github.com/user-attachments/assets/34442a3d-101a-49a8-83d9-ba831e088f1b)
-<p align=center> ʚ dni .ᐟ.ᐟ ɞ 
+<p align=center> ‎ ˗ˏˋdni .ᐟ.ᐟ‎´ˎ˗
 
 <p align=center> weird people ,, people over 18 ,, anyone who hates on my interests or favorite / comfort characters in a non - joking way ,, people who dont respect boundaries ,, homophobes and transphobes ,, racist people
 
