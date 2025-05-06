@@ -4,8 +4,11 @@
 <p align=center> they / it / dagger ⟡ whisper to int . with me because im usually offtab or working on a pony ( so i probably wont see your message immediately either ,, )
 ⟡  im a two time and broken spawn fictkin please dont talk about them negatively when im around / present in the conversation !
 
-[strawpage](https://brokenspawnirl.straw.page) - [pronouns page](https://en.pronouns.page/@leveretinhiding)
-  
+<div align="center">
+links
+</div>
+
+ 　  　  　  　  　  　  　  　  　  　 　  　 　  　  　  　  　   　　[pronouns page](https://en.pronouns.page/@leveretinhiding)　　[strawpage](https://brokenspawnirl.straw.page)
 ![image](https://github.com/user-attachments/assets/34442a3d-101a-49a8-83d9-ba831e088f1b)
 <p align=center> ‎ ˗ˏˋdni .ᐟ.ᐟ‎´ˎ˗
 
