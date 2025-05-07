@@ -8,7 +8,7 @@
 links
 </div>
 
- 　  　  　  　  　  　  　  　  　  　  　  　 　  　   　  　   　 　　[pronouns page](https://en.pronouns.page/@leveretinhiding)　 -　[strawpage](https://brokenspawnirl.straw.page)
+ 　  　  　  　  　  　  　  　  　  　  　  　 　     　     　  　 　　[pronouns page](https://en.pronouns.page/@leveretinhiding)　 -　[strawpage](https://brokenspawnirl.straw.page)
 ![image](https://github.com/user-attachments/assets/34442a3d-101a-49a8-83d9-ba831e088f1b)
 <p align=center> ‎ ˗ˏˋdni .ᐟ.ᐟ‎´ˎ˗ 
 
