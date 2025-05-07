@@ -15,7 +15,7 @@ links
 
 <p align=center> weird people ,, people over 18 ,, anyone who hates on my interests or favorite / comfort characters in a non - joking way ,, people who dont respect boundaries ,, homophobes and transphobes ,, racist people ( more on strawpg )
 
-<p align=center> ❝　byi ♫ ❞ 
+<p align=center> ❝ byi ♫ ❞ 
 
 <p align=center> i am quite a sensitive person so please be wary of that ,, use tone tags upon first meeting please !! i do not take people being dry to me lightly , i am a major overthinker !!! if you are a dnt type of person i do NOT fw you !! if you have phantom touch or whateva the hell its called dni ,,, ( more on strawpg )
 
