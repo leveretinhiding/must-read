@@ -1,8 +1,8 @@
 ![image](https://github.com/user-attachments/assets/7ae6ab3b-96fe-4745-b4ee-335ac4a1f368)
 
-<p align=center> ☆　⨟  broken spawn  ╱  two time ɞ
-<p align=center> they / it / dagger ⟡ whisper to int . with me because im usually offtab or working on a pony ( so i probably wont see your message immediately either ,, )
-⟡  im a two time and broken spawn fictkin please dont talk about them negatively when im around / present in the conversation !
+<p align=center> ☆　⨟  azure ɞ
+<p align=center> they / it ⟡ whisper to int . with me because im usually offtab or working on a pony ( so i probably wont see your message immediately either ,, )
+⟡  sys !
 
 <div align="center">
 links
@@ -13,7 +13,7 @@ links
 <p align=center> ‎ ˗ˏˋdni .ᐟ.ᐟ‎´ˎ˗ 
 
 
-<p align=center> weird people ,, people over 18 ,, anyone who hates on my interests or favorite / comfort characters in a non - joking way ,, people who dont respect boundaries ,, homophobes and transphobes ,, racist people ( more on strawpg )
+<p align=center> weird people ,, people over 18 ( there are exceptions of course ) ,, anyone who hates on my interests or favorite / comfort characters in a non - joking way ,, people who dont respect boundaries ,, homophobes and transphobes ,, racist people ( more on strawpg )
 
 <p align=center> ❝ byi ♫ ❞ 
 
