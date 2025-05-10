@@ -1,8 +1,10 @@
 ![image](https://github.com/user-attachments/assets/7ae6ab3b-96fe-4745-b4ee-335ac4a1f368)
 
 <p align=center> ☆　⨟  azure ɞ
-<p align=center> they / it ⟡ whisper to int . with me because im usually offtab or working on a pony ( so i probably wont see your message immediately either ,, )
-⟡  sys !
+<div align=center> they / it ⟡ whisper to int . with me because im usually offtab or working on a pony ( so i probably wont see your message immediately either ,, )
+⟡  sys ! 
+ please please please dont be scared to c+h it makes me feel cool !!!!!! ill be super happy if you do
+</div>
 
 <div align="center">
 links
